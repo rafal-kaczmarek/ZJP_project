@@ -1,3 +1,3 @@
 Project was prepared in polish. 
  
-Creation Date: 05.2021. Project created with Michaà≥ Sz≥àapa
+Creation Date: 05.2021. Project created with Micha≈Ç Sz≈Çapa
